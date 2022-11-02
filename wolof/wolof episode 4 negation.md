@@ -1,0 +1,16 @@
+wolof episode 4 negation
+
+    attention getter
+
+    explain what negation is 
+        -talk about what negtion is 
+
+    vocab
+        -
+    run through the negation
+        -show when to put il al and show some examples
+
+    simulation
+        - use conguagtion and grammar and negation
+    special word
+        -

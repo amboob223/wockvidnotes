@@ -7,8 +7,12 @@
            5-special word and learning tatic
 
     5 parts of learning languages 20 vocab in each video
-            grammar
-            prepositions 
-            tense
-            conguation
-            negation
+           1 grammar
+           2 conguation
+            3 prepositions
+            4 negation
+           5  tense
+           
+            
+
+            

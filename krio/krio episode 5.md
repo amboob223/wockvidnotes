@@ -16,7 +16,8 @@ Vocab inbetween dmall and mall. Same dark clothes.
     2-vocab
 
 
-    3- prepositions 
+    3- prepositions  - show location, direction time or introduces an object normall short words. show tranistion of a noun.
+
 and tense over by west gate wear something bright
 
         -'in... insi
