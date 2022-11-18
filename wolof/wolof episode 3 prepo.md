@@ -1,6 +1,9 @@
 wolof episode 3 prep
 
     attention getter
+        - common preposition:
+         "to,in at,with,beneath,above,accross,from,inbetween,beside, within,had,has,of"
+
 
     explain what preposition is 
         -how to show tranisition of nouns and show location time diresction or introduce an object

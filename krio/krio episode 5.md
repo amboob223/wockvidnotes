@@ -142,3 +142,10 @@ Happy...gladi..
 Hurry up...mekese like make case
 
 Today. Tday -->
+
+
+Location :scene 1:
+          scene 2:then maybe by my computer in office
+          scene 3:still by computer but diffrent angle
+          scene 4:hazmat suit out backyard and in the bed
+          scene 5:back in my office
