@@ -5,11 +5,11 @@ wolof episode 4 negation
     explain what negation is 
         -talk about what negtion is 
         -how to negate
-        
+
     vocab
         -
     run through the negation
-        -show when to put il al and show some examples
+        -show when to put ul uma and show some examples
 
     simulation
         - use conguagtion and grammar and negation
